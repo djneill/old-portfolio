@@ -1,3 +1,2 @@
-Updated the previous dninstalls.com to djneill.com.
-
+Previous portfolio page orginally used in 2017
 
